@@ -1,21 +1,22 @@
 # Assignment_7
 
 # 1
-## https://youtu.be/mNbEt7FrOI8
+## https://youtu.be/A1hObaRlJkM
 # 2
-
+## https://youtu.be/3wlPW-TddxE
 # 3
-
+## https://youtu.be/VN3018kW-5g
 # 4
-
+## https://youtu.be/YNItWk4hLd0
 # 5
-
+## https://youtu.be/zrHZ_RuFV2E
 # 6
-
+## https://youtu.be/-qsrSzxHRGk
 # 7
-
+## https://youtu.be/l0k83klkjy8
 # 8
-
+## https://youtu.be/VJonBq_eKu8
 # 9
-
+## https://youtu.be/l_bZ3ROVLmA
 # 10
+## https://youtu.be/mNbEt7FrOI8
